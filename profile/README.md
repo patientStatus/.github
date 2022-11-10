@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 
-Nothing yet to say... Keep an eye out
+Nothing yet to say... Keep an eye on!
 <!--
 
 **Here are some ideas to get you started:**
